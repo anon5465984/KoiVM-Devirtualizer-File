@@ -1,4 +1,2 @@
 # KoiVM-Devirtualizer-File
-YOU GOT 72 HOUR PC-RET.
-
-Я буду чертовски утекать файлы и проект без пароля, если вы не чертовски верните мои чертовы деньги
+Refunded! Not Gonna share! Thanks PC-RET Julia
